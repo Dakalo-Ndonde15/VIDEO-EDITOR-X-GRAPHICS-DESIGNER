@@ -10,6 +10,18 @@
 # <a href="https://youtu.be/dwDEumtSHsM">PLAQUEBOY MAX X KOSFINGER BEATS SNIPPET</a>
 
 # <a href="https://youtu.be/6q0fxxlG5SU">MALL POOL PARTY</a>
-# <a href="https://youtu.be/4etignbstw8">SEXY REDD X KOSFINGER BEATS SNIPPET</a>
+
+# <a href="https://youtu.be/0qSi4sUJOiE">A BOOGIE WIT DA HOODIE X KOSFINGER BEATS SNIPPET</a>
+
+# <a href="https://youtu.be/qfQzLc7Sg_Q">TURKEY VLOG X KOSFINGER</a>
+
+# <a href="https://youtu.be/HsYGAnShsoc">MUSIC VIDEO SHOOT </a>
+
+# <a href="https://youtu.be/6q0fxxlG5SU">MALL POOL PARTY</a>
+# <a href="https://youtu.be/6q0fxxlG5SU">MALL POOL PARTY</a>
+# <a href="https://youtu.be/6q0fxxlG5SU">MALL POOL PARTY</a>
+# <a href="https://youtu.be/6q0fxxlG5SU">MALL POOL PARTY</a>
+# <a href="https://youtu.be/6q0fxxlG5SU">MALL POOL PARTY</a>
+# <a href="https://youtu.be/6q0fxxlG5SU">MALL POOL PARTY</a>
 
 
