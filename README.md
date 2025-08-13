@@ -21,7 +21,7 @@
 
 # <a href="https://youtu.be/fhAAclvCCEo">BLOVE STUDIO SESSION</a>
 
-# <a href="https://www.youtube.com/playlist?list=PLCFBdpDEOzb0e1u4_6556AtZk3dG_aVKh">MORE VLOG SNIPPETS</a>
+# <a href="https://www.youtube.com/playlist?list=PLCFBdpDEOzb2LTyWAu9ihh3OK9dpZfoMq">MORE VLOG SNIPPETS</a>
 
 
 
